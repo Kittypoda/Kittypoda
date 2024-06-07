@@ -7,11 +7,11 @@ Please feel free to ask me anything!
 
 <img src="https://cdn.pixabay.com/photo/2013/07/13/13/46/house-161516_1280.png" width="80px" height="auto">
 
-✨🪩✨ [Link to my portfolio](https://kittypoda.github.io/Portfolio/index.html)
+✨🪩✨  [Link to my portfolio](https://kittypoda.github.io/Portfolio/index.html)
 
-✨🪩✨ [Link to my LinkedIn](https://www.linkedin.com/in/oda-karoline-rolstad-verbeke-aa5632312/)
+✨🪩✨  [Link to my LinkedIn](https://www.linkedin.com/in/oda-karoline-rolstad-verbeke-aa5632312/)
 
-✨🪩✨ Contact me on odakrolstad@gmail.com
+✨🪩✨  Contact me on odakrolstad@gmail.com
 
 
  
