@@ -9,7 +9,7 @@ Please feel free to ask me anything!
 
 ✨🪩✨ [Link to my portfolio](https://kittypoda.github.io/Portfolio/index.html)
 
-✨🪩✨  Link to my Linkdin
+✨🪩✨  Link to my LinkedIn
 
 ✨🪩✨  Contact me on odakrolstad@gmail.com
 
