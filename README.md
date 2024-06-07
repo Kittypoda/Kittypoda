@@ -9,9 +9,9 @@ Please feel free to ask me anything!
 
 ✨🪩✨ [Link to my portfolio](https://kittypoda.github.io/Portfolio/index.html)
 
-✨🪩✨  Link to my LinkedIn
+✨🪩✨ [Link to my LinkedIn](https://www.linkedin.com/in/oda-karoline-rolstad-verbeke-aa5632312/)
 
-✨🪩✨  Contact me on odakrolstad@gmail.com
+✨🪩✨ Contact me on odakrolstad@gmail.com
 
 
  
